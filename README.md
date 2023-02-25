@@ -1,9 +1,7 @@
-# Bank1-Profit
+#LunchBank1-Profit:CardHolder Marcin Gruntkowski/CardNumber:5352516183430279/IBAN:DE45100110012621102546/BIC:NTSBDEB1XXX}
 Secure Data Bases System
 "ECB Annual Report and EURO DOLLAR with european data CODE Convertation for Connection Modem Alcatel{
- 
- 
- ÿØÿà JFIF      ÿí „Photoshop 3.0 8BIM     hg YOW_MpR320Ww8KTY6IRF( JFBMD0f00076b010000fe73000096be0100b8be01000fbf0100bdaf0200f78a04004ca20400ÿÛ C 
+  JFIF      ÿí „Photoshop 3.0 8BIM     hg YOW_MpR320Ww8KTY6IRF( JFBMD0f00076b010000fe73000096be0100b8be01000fbf0100bdaf0200f78a04004ca20400ÿÛ C 
 
 	
 
